@@ -1,1 +1,2 @@
 # CLOUD_0NE
+HOPE UP
